@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xioaandguan
-- 👀 I’m live in xuancheng.anhui.China.
+- 👀 I am live in xuancheng.anhui.China.
 - 🌱 My JJ is so big ...
 - 💞️ I did like write Elanguage...
 
